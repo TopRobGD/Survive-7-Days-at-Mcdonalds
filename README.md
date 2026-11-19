@@ -1,1 +1,0 @@
-# Survive-7-Days-at-Mcdonalds
